@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Tyobs
+- 👋 Hi, I'm Hanieyo
 - 👀 I’m interested in ...programming & & hacking
 - 🌱 I’m currently learning ...hacking
 - 💞️ I’m looking to collaborate on project cHaNgE-tHe-WoRlD
